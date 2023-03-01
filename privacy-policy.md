@@ -157,7 +157,7 @@ Our Policy Toward Children
 
 
 
-These Services are not directed to children under 13. We do not knowingly collect personally identifiable information from children under 13. If a parent or guardian becomes aware that his or her child has provided us with Personal Information without their consent, he or she should contact us at maxdevapp@gmail.com. If we become aware that a child under 13 has provided us with Personal Information, we will delete such information from our files.
+These Services are not directed to children under 13. We do not knowingly collect personally identifiable information from children under 13. If a parent or guardian becomes aware that his or her child has provided us with Personal Information without their consent, he or she should contact us at 19bcs2410@gmail.com. If we become aware that a child under 13 has provided us with Personal Information, we will delete such information from our files.
 
 
 
